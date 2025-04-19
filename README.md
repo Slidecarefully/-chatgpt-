@@ -22,6 +22,7 @@ WildCard野卡官网：https://yeka.ai/i/KISV1F48
 
 ## 第四步：选择服务年限，输入邀请码“KISV1F48”，并支付开卡费。
 注意：使用邀请码“KISV1F48”可立减1美金。此外，WildCard野卡虚拟信用卡的开卡费仅收取一次，后续就是充值多少实到账多少，无其他费用了。在未来的1至2年内，你不仅可以使用野卡虚拟信用卡来支付ChatGPT Plus订阅费用，还可以用它来支付OpenAI API、Claude Pro、MidJourney、Google Gemini、Apple Store、Google Play、Facebook、Twitter、Youtube、Onlyfans、Spotify、Github、Telegram等平台的费用。
+![QQ_1745078737424](https://github.com/user-attachments/assets/e0cef345-87f8-4d4b-88be-d4293484fa9b)
 
 国内ChatGPT Plus购买第四步：选择服务年限，输入邀请码“KISV1F48”，并支付开卡费
 
