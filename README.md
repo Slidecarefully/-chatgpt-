@@ -12,39 +12,51 @@ WildCard野卡官网：https://yeka.ai/i/KISV1F48
 
 ## 第二步：点击左侧的“立即开通”按钮。
 国内ChatGPT Plus订阅第二步：点击左侧的“立即开通”按钮
+![QQ_1745078494258](https://github.com/user-attachments/assets/830b8ec8-caff-4200-92cb-036d13d596eb)
+
 
 ## 第三步：点击“开通会员”按钮。
 国内ChatGPT Plus订阅第三步：点击“开通会员”按钮
+![QQ_1745078511507](https://github.com/user-attachments/assets/d4e7ce15-de49-46f6-9de5-671e349f04f3)
+
 
 ## 第四步：选择服务年限，输入邀请码“KISV1F48”，并支付开卡费。
 注意：使用邀请码“KISV1F48”可立减1美金。此外，WildCard野卡虚拟信用卡的开卡费仅收取一次，后续就是充值多少实到账多少，无其他费用了。在未来的1至2年内，你不仅可以使用野卡虚拟信用卡来支付ChatGPT Plus订阅费用，还可以用它来支付OpenAI API、Claude Pro、MidJourney、Google Gemini、Apple Store、Google Play、Facebook、Twitter、Youtube、Onlyfans、Spotify、Github、Telegram等平台的费用。
 
-国内ChatGPT Plus购买第四步：选择服务年限，输入邀请码“ANYOFAI”，并支付开卡费
+国内ChatGPT Plus购买第四步：选择服务年限，输入邀请码“KISV1F48”，并支付开卡费
 
 ## 第五步：完善个人基本信息，然后点击“完成认证”按钮。
 注意：当你点击了“完成认证”按钮之后，就代表你已经地拥有了一张“野卡YEKA虚拟信用卡”。接下来，野卡还会引导你进行更深入的实名认证。如果你不想透露更多隐私信息的话，可以在点击了“完成认证”按钮之后，直接跳至“步骤六”继续操作。
+![QQ_1745078554803](https://github.com/user-attachments/assets/34828a36-8440-4c60-b29d-27e7fc109df1)
 
 国内ChatGPT Plus升级第五步：完善个人基本信息，然后点击“完成认证”按钮
 
 ## 第六步：使用支付宝给“野卡虚拟信用卡”充值。
 注意：由于ChatGPT Plus的订阅费用为每月20美金，因此充值金额必须大约20美金。
+![QQ_1745078578171](https://github.com/user-attachments/assets/8576056f-4b7c-44c5-a209-6b7d86c2e164)
 
 国内ChatGPT Plus开通第六步：使用支付宝给“野卡虚拟信用卡”充值
 
 ## 第七步：点击“ChatGPT一键升级”按钮。
 国内ChatGPT Plus购买第七步：点击“ChatGPT一键升级”按钮
+![QQ_1745078594353](https://github.com/user-attachments/assets/c05e9328-f9ae-4ec0-aff9-a2715c39afcb)
+
 
 ## 第八步：打开ChatGPT官网，使用帐号密码登录并点击“升级套餐”。
 中国ChatGPT Plus升级第八步：打开ChatGPT官网，使用帐号密码登录并点击“升级套餐”
+![QQ_1745078612539](https://github.com/user-attachments/assets/6ab4aa83-4af6-424e-ab42-ac30e0eab02b)
 
 ## 第九步：复制ChatGPT支付页面链接。
 中国ChatGPT Plus开通第九步：复制ChatGPT支付页面链接
+![QQ_1745078623541](https://github.com/user-attachments/assets/092fb98c-0f25-4e23-8d3d-9052067e0291)
 
 ## 第十步：返回到野卡后台，粘贴链接并点击“下一步”按钮。
 中国ChatGPT Plus购买第十步：返回到野卡后台，粘贴链接并点击“下一步”按钮
+![QQ_1745078634104](https://github.com/user-attachments/assets/fb594091-b8c9-4358-b3fd-a23b3d1017a2)
 
 ## 第十一步：按照提示完成后续操作，即可成功开通ChatGPT Plus帐号。
 中国ChatGPT Plus订阅第十一步：按照提示完成后续操作，即可成功开通ChatGPT Plus帐号
+![QQ_1745078644625](https://github.com/user-attachments/assets/084b3251-8835-4e7e-8694-917191dcb369)
 
 小结，我们先来简单总结一下国内使用支付宝开通ChatGPT Plus账号的流程：先申请一张“野卡YEKA虚拟信用卡”，再使用支付宝为其充值20美金，然后使用该卡支付ChatGPT Plus订阅费用。当你完成以上步骤之后，你便成功开通了ChatGPT Plus账号，接下来就可以尽情享受ChatGPT Plus的所有功能和服务。
 
